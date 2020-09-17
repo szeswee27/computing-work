@@ -1,2 +1,3 @@
 # sCaRy
-I live all alone. It's a beautiful house, really, with vintage baby blue paint on the outside, with long, thoughtful corridors that just seem to lead nowhere. The chairs and tables are scattered everywhere, each draped in a sheet of luxurious creamy silk.
+I live all alone. It's a beautiful house, really, with vintage baby blue paint on the outside, with long, thoughtful corridors inside that just seem to lead nowhere. The chairs and tables are scattered everywhere, each draped in a sheet of luxurious creamy silk.
+I do believe my bedroom is the most furnished though, with an ebony black closet (which is very unfortunately infested with moths and falling apart) and with my large plush bed, with just the right shade of salmon pink (it used to be a bright glaring red, which I clearly despised), surrounded by a few creaky poles, white paint peeling off. On rainy days, my favourite thing to do is stare out my bedroom window, holding my best cup of tea.
