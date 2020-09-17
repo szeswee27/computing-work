@@ -1,4 +1,2 @@
-# Idea 1: shrek but a different pov
-## Idea 2: pls help
-## Idea 3: horror story cos thats better
-Once upon a time, there lived an organism in a swamp.
+# sCaRy
+I live all alone. It's a beautiful house, really, with vintage baby blue paint on the outside, with long, thoughtful corridors that just seem to lead nowhere. The chairs and tables are scattered everywhere, each draped in a sheet of luxurious creamy silk.
