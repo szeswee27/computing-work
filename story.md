@@ -1,4 +1,2 @@
-# def not copyrighted
-## pls help
-### can i just write an essay on why i hate stuff
-topic 1: 
+# What if
+1. everybody just accepted that money is fake
