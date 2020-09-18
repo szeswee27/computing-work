@@ -1,2 +1,2 @@
-# What if
-1. everybody just accepted that money is fake
+# ran out of ideas 
+## come back later
