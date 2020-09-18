@@ -2,7 +2,11 @@
 
 [raining, lightning in background and thunder soft, outside a house]
 
-I live all alone. It's a beautiful house, a mansion really, surrounded by gates with spikes as sharp as the tips of champion swords. Coated by a stunning shade of black on the outside, surrounded by a garden of poison ivy and coffee-brown flowers, it truly is a dramatic sight to behold. Inside,  a labyrinth of long, thoughtful corridors inside just seem to lead nowhere. The chairs and tables are scattered everywhere, each draped in a sheet of luxurious creamy silk. The once lavish carpets, specially tailored from India, are now reduced to rags, chewed up by rats. If you're lucky, you might find your way to the ballroom. [old creaky doors slam open by self, when you enter something falls and almost hits you.] Be careful, the ceiling is in disrepair, some of the debris might hit you. Leading upstairs is a husk of what used to be the most majestic staircase, the gold paint in shreds, barely hanging off the railings, now just rusty metal poles.
+I live all alone. It's a beautiful house, a mansion really, surrounded by gates with spikes as sharp as the tips of champion swords. Coated by a stunning shade of black on the outside, surrounded by a garden of poison ivy and coffee-brown flowers, it truly is a dramatic sight to behold. 
+
+Inside, a labyrinth of long, thoughtful corridors inside just seem to lead nowhere. The chairs and tables are scattered everywhere, each draped in a sheet of luxurious creamy silk. The once lavish carpets, specially tailored from India, are now reduced to rags, chewed up by rats. 
+
+If you're lucky, you might find your way to the ballroom. [old creaky doors slam open by self, when you enter something falls and almost hits you.] Be careful, the ceiling is in disrepair, some of the debris might hit you. Leading upstairs is a husk of what used to be the most majestic staircase, the gold paint in shreds, barely hanging off the railings, now just rusty metal poles.
 
 Go up the staircase, you will reach the rooms. The floorboards are torn and moldy. At the end of the corridor, facing the hallway, is my room. [go through hallway, unsettling paintings, with other mysterious doors. move into room, door creaks open by self]
 
